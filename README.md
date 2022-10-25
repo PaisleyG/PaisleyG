@@ -8,7 +8,7 @@ Looking to gain meaningful connections & career advancement
 
 *   🌍  I'm based in Kawartha Lakes, Ontario
 *   ✉️  You can contact me at [pazeycoding@gmail.com](mailto:pazeycoding@gmail.com)
-*   ⚡  I Love Sketching , Gaming , Archery & Anything Automotive!
+*   ⚡  I Love Sketching & Anything Automotive!
 
 ### Skills 
 <p align="left">
